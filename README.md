@@ -69,11 +69,11 @@ BJAKFNHLOD
 
 - **Developing Your Skills**
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200922234202120.png" alt="image-20200922234202120" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200922234202120.png" alt="image-20200922234202120" style="zoom:67%;" />
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200922234049561.png" alt="image-20200922234049561" style="zoom: 67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200922234049561.png" alt="image-20200922234049561" style="zoom: 67%;" />
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200922233425774.png" alt="image-20200922233425774" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200922233425774.png" alt="image-20200922233425774" style="zoom:67%;" />
 
 - **extending your vocabulary**
 
@@ -95,7 +95,7 @@ appreciate
 
 - **Expanding Your Creativity**
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200922234424451.png" alt="image-20200922234424451" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200922234424451.png" alt="image-20200922234424451" style="zoom:67%;" />
 
 #### :sunny: Unit 2  Horoscopes
 
@@ -183,19 +183,19 @@ MOJNGFKIEB
 
 :zap: **Part d**
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200923000748269.png" alt="image-20200923000748269" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200923000748269.png" alt="image-20200923000748269" style="zoom:67%;" />
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200923000843704.png" alt="image-20200923000843704" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200923000843704.png" alt="image-20200923000843704" style="zoom:67%;" />
 
 - **developing your skills**
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200923000957509.png" alt="image-20200923000957509" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200923000957509.png" alt="image-20200923000957509" style="zoom:67%;" />
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200923001040885.png" alt="image-20200923001040885" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200923001040885.png" alt="image-20200923001040885" style="zoom:67%;" />
 
 - **Extending Your Vocabulary**
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200923001233309.png" alt="image-20200923001233309" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200923001233309.png" alt="image-20200923001233309" style="zoom:67%;" />
 
 #### :sunny: Unit 7 Home Truths
 
@@ -395,7 +395,7 @@ EFCI DBG AKL
 
 - **Developing Your Skills**
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200923005121431.png" alt="image-20200923005121431" style="zoom:67%;" />![image-20200923005154641](C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200923005154641.png)
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200923005121431.png" alt="image-20200923005121431" style="zoom:67%;" />![image-20200923005154641](https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200923005154641.png)
 
 
 
@@ -483,7 +483,7 @@ DCKNBJOLAH
 
 :zap: **part b**
 
-<img src="C:\Users\zRain\AppData\Roaming\Typora\typora-user-images\image-20200923010302223.png" alt="image-20200923010302223" style="zoom:67%;" />
+<img src="https://raw.githubusercontent.com/zRains/Eng_Key/master/img/image-20200923010302223.png" alt="image-20200923010302223" style="zoom:67%;" />
 
 ---
 
